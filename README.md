@@ -63,3 +63,6 @@ As mentioned before it includes the following:
 
 
 ![image](https://github.com/jrobertofg/belly-button-challenge/assets/27827806/24381514-2984-4378-878e-5648fcb9528a)
+
+![image](https://github.com/jrobertofg/belly-button-challenge/assets/27827806/4df42472-173e-43fa-b6ac-39a377bfc2a4)
+
